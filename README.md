@@ -1,1 +1,0 @@
-# AudioBook-Scrum-the-Art-of-Doing-Twice-The-Work-in-Half-the-Time
